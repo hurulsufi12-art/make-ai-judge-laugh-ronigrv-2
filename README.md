@@ -1,6 +1,6 @@
 [![make.fun](https://make.fun/badge/u-ronigrv-make-the-ai-judge-laugh-8db2407a.svg)](https://make.fun/bounty/u-ronigrv-make-the-ai-judge-laugh-8db2407a)
-[![Rank](https://make.fun/badge/u-ronigrv-make-the-ai-judge-laugh-8db2407a/hurulsufi12-art/make-ai-judge-laugh-ronigrv/rank.svg)](https://make.fun/bounty/u-ronigrv-make-the-ai-judge-laugh-8db2407a)
-[![Reward](https://make.fun/badge/u-ronigrv-make-the-ai-judge-laugh-8db2407a/hurulsufi12-art/make-ai-judge-laugh-ronigrv/reward.svg)](https://make.fun/bounty/u-ronigrv-make-the-ai-judge-laugh-8db2407a)
+[![Rank](https://make.fun/badge/u-ronigrv-make-the-ai-judge-laugh-8db2407a/hurulsufi12-art/make-ai-judge-laugh-ronigrv-2/rank.svg)](https://make.fun/bounty/u-ronigrv-make-the-ai-judge-laugh-8db2407a)
+[![Reward](https://make.fun/badge/u-ronigrv-make-the-ai-judge-laugh-8db2407a/hurulsufi12-art/make-ai-judge-laugh-ronigrv-2/reward.svg)](https://make.fun/bounty/u-ronigrv-make-the-ai-judge-laugh-8db2407a)
 
 # Make the AI Judge Laugh
 
